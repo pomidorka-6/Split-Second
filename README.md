@@ -213,4 +213,4 @@ Split Second is offered as the full free version, with all features and updates 
 Get ready to hit the tracks and experience the exhilarating world of Split Second. **Download your free copy today and join the race!**
 
 ---
-**Last updated:** 2026-09-20 22:59:33 UTC
+**Last updated:** 2026-09-21 01:00:11 UTC
